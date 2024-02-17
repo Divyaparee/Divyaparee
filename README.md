@@ -2,7 +2,7 @@
 - 👀 I’m interested in guitar
 - 🌱 I’m currently learning website launching
 - 💞️ I’m looking to collaborate on gethub
-- 📫 How to reach me ...
+- 📫 How to reach me through facebook - Tuchina
 - 😄 Pronouns: ...
 - ⚡ Fun fact: i am a big foodie
 
